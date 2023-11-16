@@ -2,6 +2,9 @@
 #
 
 🎓Sou estudante de análise e desenvolvimento de sistemas,atualmente cursando 2 período.Almejo me tornar uma profissional de excelência e estou estudando e me dedicando para isso.
+🎂 21 anos
+📚Apaixonada por livros 
+👩🏻‍💻e se descubrindo no ramo da tecnologia
 
 
 
