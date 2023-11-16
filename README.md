@@ -1,7 +1,7 @@
 ### Óla,eu sou Jadiane!👋🙂
 #
 
--🎓Sou estudante de análise e desenvolvimento de sistemas,atualmente cursando 2 período.Almejo me tornar uma profissional de excelência e estou estudando e me dedicando para isso.
+-🎓Sou estudante de análise e desenvolvimento de sistemas,atualmente cursando 2 período.Almejo me tornar uma profissional de excelência e estou dedicanda para isso.
 <br>-🎂 21 anos
 <br>-📚Apaixonada por livros 
 <br>-👩🏻‍💻e se descubrindo no ramo da tecnologia
