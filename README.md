@@ -1,4 +1,4 @@
-### Óla,eu sou Jadiane Miranda!👋🙂
+### Óla,eu sou Jadiane!👋🙂
 
 <!--
 **JadianeMiranda/JadianeMiranda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
