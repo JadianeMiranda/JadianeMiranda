@@ -3,7 +3,7 @@
 
 -🎓Sou estudante de análise e desenvolvimento de sistemas,atualmente cursando 2 período.Almejo me tornar uma profissional de excelência e estou me empenhando para isso.
 <br>-📚Apaixonada por livros 
-<br>-👩🏻‍💻e se descubrindo no ramo da tecnologia
+<br>-👩🏻‍💻e me descubrindo no ramo da tecnologia
 
 
 
